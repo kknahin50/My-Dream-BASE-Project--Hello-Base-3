@@ -1,1 +1,1 @@
-# My-Dream-BASE-Project--Hello-Base-3
+# My-Dream-BASE-Project--Hello-Base-3  The future is officially loading. We are creating an open-source hub where creators, developers, and visionaries connect to build something massive. Driven by the community and powered by next-gen tech, this space belongs to everyone. Let’s reshape what’s possible on-chain. Welcome home to the ultimate web3 playground.
